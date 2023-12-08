@@ -43,14 +43,14 @@ Click Below Picture To Open VChat Bot Owner Id...
 #### 🥺 Copy Pasters You Can Copy This Repo But Must Give Credits ...
 
 ### 🌷 Owner Of This Repository 🇮🇳
-[![Bikash Halder](https://te.legra.ph/file/840fed0100164af249bb8.jpg)](https://t.me/BikashHalder)
+[![ASIF](https://telegra.ph/file/8d2148b8cd1e2dddd164f.jpg)](https://t.me/ASHIF903)
 
 
-#### Main Developer = [Bikash](https://t.me/BikashHalder)
+#### Main Developer = [ASIF](https://t.me/ASHIF904)
 
 ## 💕 Special Thanks
 
 ✅ Aditya Halder Thanks For Fixed All Error Or Lovely Support 💕
 
 
-## 🥀 Powered By [BikashHalder](https://t.me/Bikashhalder) & [AdityaHalder](https://t.me/Adityahalder)
+## 🥀 Powered By [ASIF](https://t.me/ASHIF904)) & [ASIF](https://t.me/ASHIF904)
